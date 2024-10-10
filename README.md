@@ -70,7 +70,7 @@ UN AGRADECIMIENTO MUY ESPECIAL A ESTE CABALLERO [@Ivanmods](https://github.com/e
 #### Rudeus mods
 #### Kirito Domina
 
-#### Para Yanina 🤗❤️
+#### ᴇsᴘᴇʀᴏ sᴜ ᴀᴘᴏʏᴏ ᴅᴇ ᴄᴀᴅᴀ ᴜɴᴏ ᴅᴇ ᴜsᴛᴇᴅᴇs
 
 ### CONTACTOS 💻
 <p>
